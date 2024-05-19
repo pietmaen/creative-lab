@@ -1,0 +1,3 @@
+- 👋 Hi, ich bin @pietmaen
+- 👀 Hier findet ihr unser Template aus dem Planspiel GPTP im Sommer 2024
+- 🌱 "Wir sind die Guten"
